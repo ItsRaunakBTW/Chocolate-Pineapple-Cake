@@ -1,1 +1,2 @@
-# Chocolate-Pineapple-Cake
+Pineapple Choco Cake
+This is my cake recipe.!
