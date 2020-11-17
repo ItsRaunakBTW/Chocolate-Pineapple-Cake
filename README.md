@@ -14,6 +14,8 @@ INGREDIENTS:-<b>
 1/4th cup choclate chips<br>
 Pineapple essence (4-5 drops)<br>
 
+<img src="chocopineapplecake.jpg" />
+
 RECIPE:-<b>
 
 Pour the butter in the bowl and add curd.<br>
