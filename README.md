@@ -14,7 +14,7 @@ INGREDIENTS:-<b>
 1/4th cup choclate chips<br>
 Pineapple essence (4-5 drops)<br>
 
-<img src="chocopineapplecake.jpg" />
+<img src="chocopineapplecake.jpg" alt="Choco Pineapple cake"/>
 
 RECIPE:-<b>
 
